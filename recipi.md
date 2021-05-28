@@ -1,0 +1,1 @@
+break the egg and wher in boul and whre salt and spices and mix well and where in pan and fry.

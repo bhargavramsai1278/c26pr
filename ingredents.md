@@ -1,0 +1,4 @@
+egg
+salt
+spices
+pan
